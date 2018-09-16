@@ -1,1 +1,3 @@
 # Journal - Motivation for learning
+
+I can definatly see how motivation, or lack thereof, can effect the quality of learning. Nobody wants to sit there and have someone lecture them on something that they couldn't care less about. Most times that happens to me I end up zoning out and you couldn't ask me two minutes later what the conversation was even about. On the flip side though, get me talking about something I really like, am really intrested in, and wouldn't be satisfied until I knew every possible thing there is to know about that subject.
