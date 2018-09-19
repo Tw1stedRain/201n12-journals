@@ -1,0 +1,3 @@
+# Why do I learn?
+
+I guess my 'why' at the moment is because I want to better myself for the future. I want to be able to say ' I wanted to have a better, more productive life. I decided I liked coding after it was one of the things my dad suggested I might like. I went to Code Fellows and learned to code. I now have a better, more productive life.' I know this is skipping a few steps, but essesentially this is an over simplified version of my thought process.
