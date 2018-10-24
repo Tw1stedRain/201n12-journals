@@ -1,0 +1,1 @@
+I think at the begining i was too new and excited to learn everything I could on the subject to feel like an imposter. Towards the middle and the end though I feel maybe a 7 or 8 on my bad days, and maybe a 4 to 6 on my better days. I know enough to feel lost in recgonizing all that I do not know. 

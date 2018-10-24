@@ -1,0 +1,1 @@
+In reference to the image, for the most part it seems pretty accurate, although, i personally would place 'reading' as a learning strategy at the lowest possible percentage and practice by doing as the highest possible percentage.

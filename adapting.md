@@ -1,0 +1,1 @@
+One of the most  unexpected parts of being at code fellows is how cmfortable I am working with the others in my class. I knew that that would be a large aspect of being here, but I was expecting it to be a bit of a challenge given my past expierences in similar situatins and I was pleasently suprised to know it hasnt been as much of a challenge as I was expectin.

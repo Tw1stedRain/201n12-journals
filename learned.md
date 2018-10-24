@@ -1,0 +1,1 @@
+Today I learned that CSS isn't as much of a hellish expierence when you have a wireframe. Haveing a CSS goal to work towards is better than just trying out random ideas you think might look good.
