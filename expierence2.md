@@ -1,0 +1,1 @@
+i refuse to go through anything in life being unproductve and if you cant get anything out of an expierence, then you can at least learn.
