@@ -1,0 +1,1 @@
+I'm not sure i actually learned anything from keeping a journal. I enjoyed the process of thinking about class in differenct ways, but I dont think I really gained anything from it.
